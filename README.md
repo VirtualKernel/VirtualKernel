@@ -1,2 +1,2 @@
-![](https://raw.githubusercontent.com/khrome/ascii-art-docs/master/Examples/mucha-lineart.png)
+![](https://raw.githubusercontent.com/khrome/ascii-art-graph/master/simple-braille.png)
 
