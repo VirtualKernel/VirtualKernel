@@ -1,2 +1,2 @@
-![](https://raw.githubusercontent.com/khrome/ascii-art-graph/master/simple-braille.png)
+![](https://cdn.discordapp.com/attachments/807685059552346112/826169101192921108/carl.png)
 
