@@ -1,2 +1,2 @@
-![](https://cdn.discordapp.com/attachments/776028020691042337/828770865591615498/kernelpf.png)
+![](https://16colo.rs/pack/newschool-01/x1/kj-moons.xb.png)
 
